@@ -1,3 +1,3 @@
 # solholidayrentals.github.io
 
-Nos especializamos en alquileres a largo plazo y ventas. También ofrecemos servicios de limpieza, reformas y mantenimiento y reparación en general. Ofrecemos una amplia gama de estudios, apartamentos de 1 y 2 habitaciones. Estamos comprometidos a ser los mejores en lo que hacemos y nuestro objetivo es brindar un excelente servicio continuo.
+We specialize in long term rentals and sales. We also offer cleaning, renovation and maintenance and repair services in general. We offer a wide range of studios, 1 and 2 bedroom apartments. We are committed to being the best at what we do and our goal is to provide continued excellent service.
